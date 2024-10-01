@@ -1,3 +1,3 @@
 # Fine-grained-STAR
 
-Please be patient, I am busy with preparing it, one moment please ^__________^
+Please in patience, I am busy with preparing it, one moment please ^__________^

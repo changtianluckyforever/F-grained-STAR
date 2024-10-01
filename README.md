@@ -1,1 +1,1 @@
-# F-grained-STAR
+# Fine-grained-STAR
